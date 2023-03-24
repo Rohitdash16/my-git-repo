@@ -1,1 +1,1 @@
-//my first fileg//awdaw/d/aw/d/
+//aji ra kama
